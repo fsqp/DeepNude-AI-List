@@ -1,4 +1,4 @@
-# DeepNude AI List Speed 1.03 s.
+# DeepNude AI List
 * [Undress Her](https://undressher.app) Speed 1.13 s.
 * [NudifyAI](https://nudify-ai.online/) Speed 0.33 s.
 * [FantasyGF.AI](https://fantasygf.ai/generate-image) Speed 0.35 s.
